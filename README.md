@@ -1,1 +1,1 @@
-Análise Crítica sobre aplicação do Scrum - Case de Sucesso da Intel.
+https://miro.com/app/board/uXjVMf9Xtow=/
